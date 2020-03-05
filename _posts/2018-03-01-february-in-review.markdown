@@ -5,7 +5,7 @@ date: 2018-03-01 00:19:38+00:00
 layout: post
 link: https://paigecodes13.wordpress.com/2018/03/01/february-in-review/
 slug: february-in-review
-title: February In Review
+title: February 2019
 wordpress_id: 103
 ---
 
@@ -36,10 +36,10 @@ and also
 
 
 
-	
+
   * saw the Chattahoochee river for the first time
 
-	
+
   * picnic for Valentine's Day <3
 
 
@@ -47,10 +47,10 @@ and also
 
 [gallery ids="114,115,112" type="rectangular"]
 
-	
+
   * GT Night at the Georgia Aquarium
 
-	
+
   * saw RENT at the Fox Theater
 
 
@@ -63,20 +63,20 @@ I will do better in March lol
 
 
 
-	
+
   * City of Friends by Joanna Trollope
 
-	
+
     * This was a really cute book! It's the story of four friends figuring out their lives in London and learning how to balance work and family.
 
 
 
 
-	
+
   * The Girl Before by Tony Strong
 
-	
-    * I wasn't a big fan of this book but its a quick read with a decent plot twist at the end. 
+
+    * I wasn't a big fan of this book but its a quick read with a decent plot twist at the end.
 
 [gallery ids="118,117" columns="2"]
 
@@ -92,29 +92,29 @@ I will do better in March lol
 
 
 
-	
+
   * BLACK PANTHER
 
-	
+
     * I have so much to say about this but I don't know how to express my feelings about it except with !!!!!!!!!!!!!!!!! Princess Shuri!!! All-female warrior guards!!! The most beautiful cast ever!!! Lupita Nyong'o!!! "I'm going to feed you to my children... I'm kidding. We're vegetarians." Wakanda Forever.
 
 
 
 
-	
+
   * One Day at a Time
 
-	
+
     * please watch this show its the cutest sit-com style Netflix original about a cuban family
 
 
 
 
-	
+
   * Step Sisters
 
-	
-  * Moonlight 
+
+  * Moonlight
 
 [gallery ids="109,108,110,116" columns="4"]
 
@@ -127,13 +127,13 @@ I will do better in March lol
 
 
 
-	
+
   * Dear Evan Hansen original cast lol
 
-	
+
   * First Aid Kit
 
-	
+
   * HAIM
 
 
@@ -145,22 +145,22 @@ I will do better in March lol
 
 
 
-	
+
   * Thoughts of Dog will always be on this list so get used to that, here's my favorite and probably most relatable tweet from this month![Screen Shot 2018-02-22 at 12.37.34 PM](https://paigecodes13.files.wordpress.com/2018/02/screen-shot-2018-02-22-at-12-37-34-pm.png)
 
-	
+
   * Yoga with Adrienne on YouTube
 
-	
+
     * if you haven't seen these videos and want to try yoga she's the best!
 
 
 
 
-	
+
   * Pick Up Limes on YouTube
 
-	
+
     * healthy vegan recipes and life advice from a registered dietician with the most calming voice ever
 
 
@@ -175,10 +175,10 @@ I will do better in March lol
 
 
 
-	
+
   * I kept my resolution to learn how to watercolor paint, and its become a fun way to me to relieve stress and an excellent way to make watching Netflix more productive by painting with my shows on in the background.
 
-	
+
   * I've also kept up with doing yoga using Yoga with Adrienne videos on YouTube
 
 
@@ -190,10 +190,10 @@ I will do better in March lol
 
 
 
-	
+
   * read more
 
-	
+
   * run more
 
 
