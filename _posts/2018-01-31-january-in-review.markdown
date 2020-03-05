@@ -1,0 +1,181 @@
+---
+author: paigecodes1748478
+comments: true
+date: 2018-01-31 17:50:32+00:00
+layout: post
+link: https://paigecodes13.wordpress.com/2018/01/31/january-in-review/
+slug: january-in-review
+title: January in Review
+wordpress_id: 80
+---
+
+I made it through the first month of 2018! Here are some highlights :)
+
+
+## January Mood ![ce8c1e21-0357-41bc-a70d-2c88e05f6e8d](https://paigecodes13.files.wordpress.com/2018/01/ce8c1e21-0357-41bc-a70d-2c88e05f6e8d.jpg)
+
+
+
+
+### Important Life Events:
+
+
+
+
+
+	
+  * Hannah got accepted to Georgia Tech and decided to come here for college!! I could not be more excited or more proud.
+
+	
+  * Started my second semester of my sophomore year at Tech. I'm learning that physics is really hard and there is never enough time in the day to get as much sleep as I want to get.
+
+
+
+
+### Adventures:
+
+
+
+
+
+	
+  * New Year's in Big Sky Montana
+
+	
+    * ski trip!
+
+	
+    * Yellowstone National Park
+
+
+
+
+	
+  * Hiked Kennesaw Mountain
+
+	
+  * Visited the High Museum in Atlanta
+
+	
+  * two snow days!! This completely backfired into a horrible workload in the following weeks but it was still kinda worth it.
+
+	
+  * Brunched at The Brasserie and Neighborhood Cafe with my Oxford squad
+
+	
+  * Weekend in Ohio to visit family
+
+	
+  * I bought new plants! After the tragic death of Tippy 2.0 I went to Home Depot to pick out Tippy 3.0 and some cactus friends. They are my most faithful study buddies.[gallery ids="95,94,96,91,93,92,97,90" type="rectangular" link="none"]
+
+
+
+
+### Books I Read This Month:
+
+
+
+
+
+	
+  * The Seven Husbands of Evelyn Hugo by Taylor Jenkins Reid
+
+	
+    * PLEASE read this I loved every second of it
+
+	
+    * "Because they are just husbands. I am Evelyn Hugo. And anyway, I think once people know the truth, they will be much more interested in my wife."
+
+
+
+
+	
+  * Never Let Me Go by Kazou Ishiguro
+
+	
+  * This Must Be The Place by Maggie O'Farrell
+
+	
+  * Swimming Home by Deborah Levy
+
+	
+  * Quiet: The Power of Introverts in a World That Can't Stop Talking by Susan Cain[gallery ids="83,82,85,81,84" columns="5" link="none" size="medium"]
+
+
+
+
+### Favorite Artists This Month:
+
+
+
+
+
+	
+  * Billie Eilish, Keaton Henson, Oh Wonder, Grace Vanderwaal, Dodie Clark
+
+
+
+
+### Favorite Social Media Accounts This Month
+
+
+
+
+
+	
+  * Thoughts of a Dog on Twitter
+
+	
+    * this makes my day every single day I'm emotional just thinking about it
+
+
+
+
+	
+  * Lin-Manuel Miranda on Twitter
+
+	
+    * good morning tweets!! and good night tweets!! He's inspiring
+
+
+
+
+	
+  * ChampionsAreMade on Tumblr
+
+	
+  * All of my friends' Instagrams because I have awesome friends :)
+
+
+
+
+### Musical Pursuits
+
+
+I've been focusing on ukulele lately, and I'm particularly proud of this little cover of Lana Del Rey's "Video Games". I love my Kala ukulele. Every time I play it I'm reminded of navigating the tube in London to find Duke of Uke the day I bought it and it makes my heart happy.
+
+https://www.instagram.com/p/BeOgIEJn-9q/?taken-by=paigemcauliffemusic
+
+
+### February Resolutions
+
+
+
+
+
+	
+  * learn how to watercolor paint
+
+	
+    * I bought a cheap travel watercolor kit on Amazon and I'm super excited to jump into some YouTube tutorials and probably drag my friends along for the ride
+
+
+
+
+	
+  * actually start doing yoga regularly (my new year's resolution that hasn't really panned out how I planned for it too yet lol)
+
+
+
+
+
